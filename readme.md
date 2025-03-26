@@ -11,3 +11,9 @@
 
 “Tuqburni is used to describe the all-encompassing feeling of not being able to live without someone. Which is why the literal translation is, ‘You bury me.”
 ― Colleen Hoover, Without Merit.
+
+“You don’t get to decide what your life means to anyone else.”
+― Colleen Hoover, Without Merit
+
+“We’re all a degree of fucked-up.”
+― Colleen Hoover, Without Merit
